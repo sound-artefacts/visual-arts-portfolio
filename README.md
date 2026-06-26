@@ -1,4 +1,4 @@
-Petros Tatsiopoulos Visual Arts portfolio 2011-2026
+Petros Tatsiopoulos (b. 1993, Athens, Greece), Visual Arts portfolio 2011-2026
 
 Institutions: KIT Karlsruhe, HfG Karlsruhe, ACG Deree Athens, 
 Michael Kontraros Collectables, Anastasios Nyfadopoulos Art Studio, 
